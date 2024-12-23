@@ -18,7 +18,7 @@ Welcome to my GitHub profile! I'm a passionate **UI/UX Designer** and **Fullstac
 ## 📫 How to Reach Me
 
 - LinkedIn: [hasan-fadlullah](https://www.linkedin.com/in/hasan-fadlullah)
-- Instagram: [@fadilbaf](https://www.instagram.com/fadilbaf)
+- Instagram: [@fadilbaf](https://www.instagram.com/bafaqh)
 
 ---
 
